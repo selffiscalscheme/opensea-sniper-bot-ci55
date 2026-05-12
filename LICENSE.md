@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with high-frequency opensea sniper bot | volume-analysis + trait-analysis. Featuring volume-analysis and trait-analysis, it's the best choice
 
 
 
